@@ -1,1 +1,0 @@
-# eduadoc-1c
